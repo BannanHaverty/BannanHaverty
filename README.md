@@ -56,7 +56,9 @@ I bring a decade of discipline, problem-solving, and mission-focused experience 
 ## 🪪 Contact
 
 📧 Email: Bannan.Haverty@outlook.com  
+
 💼 LinkedIn:  https://www.linkedin.com/in/bannan-haverty-31b202330/
+
 🐙 GitHub: https://github.com/BannanHaverty/BannanHaverty/blob/main/README.md
 
 ---
