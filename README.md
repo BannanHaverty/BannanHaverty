@@ -55,8 +55,8 @@ I bring a decade of discipline, problem-solving, and mission-focused experience 
 
 ## 🪪 Contact
 
-📧 Email: _your.email@example.com_  
-💼 LinkedIn: https://linkedin.com/in/yourname  
+📧 Email: Bannan.Haverty@outlook.com  
+💼 LinkedIn:  https://www.linkedin.com/in/bannan-haverty-31b202330/
 🐙 GitHub: https://github.com/yourusername
 
 ---
